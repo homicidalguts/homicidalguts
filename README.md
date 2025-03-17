@@ -7,10 +7,8 @@
 
 
 ![](https://files.catbox.moe/s3rbah.png)
-
-<sub>non⠀-⠀human,⠀it's⠀usually⠀afk,⠀but⠀it'll⠀always⠀be⠀available⠀to⠀chat.</sub> 
-
-
+<br><br>non - human. <br> speaks in third person sometimes <br><br> chance & 2time kin <br> feel free to int or c+h <br><br> no dni, it will block if needed <br>
+<sub>it's⠀usually⠀afk,⠀but⠀it'll⠀always⠀be⠀available⠀to⠀chat.</sub> 
 
 
 
